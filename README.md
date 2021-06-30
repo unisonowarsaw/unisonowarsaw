@@ -1,7 +1,7 @@
 - 👋 Cześć, to oficjalne konto Unisono Centrum Kształcenia Muzycznego.
 - 🎼 Jak się z nami skontaktować - Sprawdź naszą stronę <a href="https:\/\/www.ksztalceniemuzyczne.pl">Unisono Autorska Szkoła Muzyczna Warszawa</a>
                                                                      
-Jesteśmy autorską szkołą muzyczną funkcjonującą w Warszawie od 2008 roku. Jesteśmy otwarci na ludzi pragnących poznać wspaniały świat muzyki. Nasi mistrzowscy muzycy, mający za sobą niejedno konertowe tournée, pomogą Ci zacząć grać na instrumencie lub śpiewać. Oferujemy lekcje muzyki w wielu językach. 
+Jesteśmy autorską szkołą muzyczną funkcjonującą w Warszawie od 2008 roku. Bezsprzecznie zawsze będziemy otwarci na ludzi pragnących poznać wspaniały świat muzyki. Nasi mistrzowscy muzycy, mający za sobą niejedno konertowe tournée, pomogą Ci zacząć grać na instrumencie lub śpiewać. Oferujemy lekcje muzyki w wielu językach. 
 
 ### Prowadzimy indywidualne zajęcia muzyczne w Warszawie oraz zdalnie
 
